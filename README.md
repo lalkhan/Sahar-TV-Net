@@ -3,21 +3,21 @@ Sahar-TV network program seeks to highlight the Community talents on the world s
 
 We welcome your participation!
 
-Mr. Lalaka Mamanzay is the Founder/CEO of Sahar-TV Network, He is with a respects & gratitude to a diversity and multiculturalism, the central theme in Sahar-TV Network. Mr. Mamanzay has worked as composer, singer, musician, music arranger, Creative Director/Filmmaker have been working for 13 years of experience in the area of digital film and television production industry, Knowledgeable in all aspects of production, Pre – Productions, Post – Production, Web developer, web designer, graphic designer, animator, He brings this depth of experience to run the Sahar-tv network.
-Mr. Lalaka Mamanzay: A Gift with Smile & respect
+Mr. Lalaka Mamanzay is the Founder/CEO of Sahar-TV Network, He is with a respects & gratitude to a diversity and multiculturalism, the central theme in Sahar-TV Network. Mr. Mamanzay has worked as composer, singer, musician, music arranger, Creative Director/Filmmaker have been working for 13 years of experience in the area of digital film and television production industry, Knowledgeable in all aspects of production, Pre – Productions, Post – Production, Web developer, web designer, graphic designer, animator, He brings this depth of experience to run the Sahar-TV Network.
+Mr. Lalaka Mamanzay A Gifted Artist, singer, Musician, with Smile & respect
 Our tour has been covered by both Print and TV Network outlets including the World-TV, Ariana Afghanistan Satellite, Eye Partner, TikiLive network.
 
 Our digital media network is proud to have developed strong relationships with the friends and Colleagues.
 
 Sahar-TV Network is the Leading Digital media network in Canada, owned and operated by Mr. Lalaka Mamanzay with programming content rooted in Afghan, South Asian and Local Communities rich and diverse traditions while embracing the vibrant youth for their success in the global community.
 Today the globe is a simple small village with internet facilities and modern technology. Canadian’s, South Asian and Afghan Communities aboard are the target audience of Sahar-TV Network, whatever continent they reside in.
-With its multi-lingual shows, Sahar-tv Network fills in a void for the young and homesick Canadians all over the world.
+With its multi-lingual shows, Sahar-tv Network fills in a void for the young and homesick Canadians all over the World.
 
 Sahar-TV Network
 Catering to a wide variety of topics, Sahar-TV Network is essentially focused on the South Asian and Afghan youth who are the bold new face of a modern Canada.
 Vision/ Mission
 Our vision is to become the most popular Professional Digital Television Network in Canada.
-Sahar-tv Network is an online digital media network with live programming that will champion the cultural and arts.
+Sahar-tv Network is an online digital media network with live programming that will champion the Multicultural Community Programs around the World.
 We strive for visible and measurable community support and ensure that programming content reflects community demographics, needs, and priorities.
 
 Coverage / Audience
