@@ -1,5 +1,4 @@
-# Sahar-TV-Net
-Leading Digital Media Network - Multicultural Community Entertainment Programs World-Wide
+# Sahar-TV-Network
 Welcome to Sahar-tv network. We are a not-for-profit broadcasting network for Canada’s multicultural community entertainment programs around the World. We strive to achieve the highest standard in programming to ensure high-quality programs which reflect the interests of Our diverse audience around the Globe
 Sahar-tv network program seeks to highlight the Community talents on the world stage, connecting people and events from around the world. Our Professional and educational network to enlighten the world about Communities culture and arts, promoting the diversity and Multiculturalism around the world. Our goal is to reflect the Community voice in an open and objective format, focusing on solutions, ethical conduct, and mutual respect. Our network emphasizes what is right with people and how each and every one of Us is an asset to our global society.
 
