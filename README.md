@@ -21,7 +21,7 @@ Sahar-tv Network is an online digital media network with live programming that w
 We strive for visible and measurable community support and ensure that programming content reflects community demographics, needs, and priorities.
 
 Coverage / Audience
-Sahar-tv Network brings 24/7 coverage to young Canadian’s wherever they may be on the planet.
+Sahar-TV Network brings 24/7 coverage to young Canadian’s wherever they may be on the planet.
 
 Scope of the Programming
 Sahar-TV Network shows are 10% talk shows and 90% latest South Asian and Afghan music.
